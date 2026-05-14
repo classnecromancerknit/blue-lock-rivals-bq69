@@ -1,4 +1,4 @@
-#  
+#  smart Script for blue lock rivals is the best blue lock rivals Script, featuring instant win and fly. Safe and powerful for all your needs.
 
 
 
